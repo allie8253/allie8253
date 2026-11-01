@@ -3,7 +3,7 @@
 <table>
   <tr>
     <td>
-    <img width="200" height="200" alt="ollected scrasp" src="https://github.com/user-attachments/assets/a22ac940-02ae-4215-b281-38cbde107b8d" />
+    <img width="2048" height="2048" alt="11111111111" src="https://github.com/user-attachments/assets/08ef6aa6-fda1-4419-a5fe-6d2cefa3cf72" />
  </td>
     <td>
     <p align="center">
