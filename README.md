@@ -16,6 +16,10 @@
 </table>
 </div>
 <hr>
+<p align="center">
+  <img width="110" height="60" alt="IMG-5475" src="https://github.com/user-attachments/assets/47709d32-c448-4313-8269-7f6e347374a0" />
+<img width="110" height="60" alt="IMG-5477" src="https://github.com/user-attachments/assets/bb9e2532-08d8-4c1c-be80-57c161a124ae" />
+</p>
 <p align="center"> <img width="1280" height="350" alt="lots-NERDS" src="https://github.com/user-attachments/assets/f33fbeb3-4943-4b7b-a1da-33dd961f8b5c" /></p>
 <p align="center"> <a href="https://aleealee.atabook.org">新book</a></p>
 <hr>
