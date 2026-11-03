@@ -1,4 +1,4 @@
-<p align="center"><img width="736" height="414" alt="!!!!!!!!!!!!!" src="https://github.com/user-attachments/assets/3ebcbb44-096d-44d5-83b8-fcf5a33c127a" />
+ew ew ew i didnt like- I HATE how my old rentry turned out EWWWW YUCKK
 <p align="center">
   <a href="https://aleealee.atabook.org">新book</a>
   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
