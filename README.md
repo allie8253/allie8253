@@ -8,7 +8,7 @@ hello, i'm momo, you could call me crown, or the skin im using! i like the objec
   i heavily relate to crown, even me being a non-binary and all that. i like salted caramel and chaos. my irl pookie kind of relates to charger block. isn't that crazy????!?
 
   ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
-  some other interests i have are korfc, ii, omori and danganronpa!! i LOVE c*h. and pleasee do not mention past dramas i was in. also, interact with care. i might be sensitive if im having a bad day. have a great day, evening and night, goodbye! momo is going away... nya~
+  some other interests i have are korfc, ii, omori, illit and danganronpa!! i LOVE c*h. and pleasee do not mention past dramas i was in. also, interact with care. i might be sensitive if im having a bad day. have a great day, evening and night, goodbye! momo is going away... nya~
 </details>
 </div>
 <p align="center"> <img width="2048" height="1536" alt="Untitled46_20261103141021" src="https://github.com/user-attachments/assets/7df06406-2ab9-4e9c-9bf4-3416fcd6eddb" />
